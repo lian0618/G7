@@ -1,1 +1,1 @@
-# G7.github.io
+# G7
